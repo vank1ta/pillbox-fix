@@ -10,6 +10,6 @@ Because lately quite often people have problems with replacing gabz you decide t
 ![Image of gcphone3](https://i.imgur.com/kv8LRP3.png)
 ![Image of gcphone4](https://i.imgur.com/fJFdNed.png)
 
-## Processed by: Д̷и̷в̷а̷к̷а™#7777
+## Processed by: VT Development's
 
 # If you have a problem with the resource, you can call me in discord
